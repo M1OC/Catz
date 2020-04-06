@@ -1,4 +1,4 @@
 Macavity's a Mystery Cat: he's called the Hidden Paw -
-For he's the master criminal who can defy the ____________.
+For he's the master criminal who can defy the __LAW.
 He's the bafflement of Scotland Yard, the Flying Squad's despair:
-For when they reach the scene of crime – Macavity's not ____________!
+For when they reach the scene of crime – Macavity's not THERE!
